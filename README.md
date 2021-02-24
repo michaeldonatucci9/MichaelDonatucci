@@ -11,7 +11,7 @@ I play quite of bit of sports. :ice_hockey: :golf: :soccer: \
 On a nice beautiful day you can expect to find me on the water with my dogs. :speedboat: :dog: :dog2:
 
 How to Find me. 
-  * https://www.linkedin.com/in/michael-donatucci-66693357/
+  * https://www.linkedin.com/in/michael-donatucci/
 
 ________________________________________________________________________________________
 
